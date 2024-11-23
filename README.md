@@ -17,9 +17,9 @@ Turmeric<br/><br/>
 ## Instructions:
 
 Take a large pot or bowl.<br/><br/>
-![IMG_0800](https://github.com/user-attachments/assets/c7a24cbb-f740-42a7-8fec-c854037fea39)<br/>
+![IMG_0800](https://github.com/user-attachments/assets/c7a24cbb-f740-42a7-8fec-c854037fea39)<br/><br/>
 Shred the cabbage and sprinkle it with salt.<br/><br/>
-![IMG_0801](https://github.com/user-attachments/assets/55327878-1544-4c5d-9611-fa11089b47fa)<br/>
+![IMG_0801](https://github.com/user-attachments/assets/55327878-1544-4c5d-9611-fa11089b47fa)<br/><br/>
 Let it rest for at least 30 minutes to allow the cabbage to release water. Be patient; don’t rush this step.<br/><br/>
 ![IMG_0802](https://github.com/user-attachments/assets/13ead100-c3a8-4ff9-9e29-aa33d9b5a12b)<br/><br/>
 While the cabbage is resting, shred the carrots and white radish and whatever you decide to add.<br/><br/>
