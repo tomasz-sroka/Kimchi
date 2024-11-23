@@ -1,6 +1,6 @@
 # Kimchi Recipe:
 
-First, you’ll need a fermentation jar. I’m using this one: Kilner Fermentation Set, and I’m quite happy with it. <br/>
+First, you’ll need a fermentation jar. I’m using this one: Kilner Fermentation Set 3 Liters, and I’m quite happy with it. <br/>
 Do not clean it in the dishwasher—it will break.
 
 ## Ingredients:
