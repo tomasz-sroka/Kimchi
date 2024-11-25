@@ -8,11 +8,15 @@ Do not clean it in the dishwasher, as it might break.
 Salt<br/><br/>
 0.5–1 kg carrots<br/>
 2 white radishes<br/>
-optional your favourie vegetable or fruit<br/><br/>
+optional your favourie vegetable or fruit<br/>
+
+#### Ingredients may vary, as every vegetable can ferment.<br/>
+
 1 head of garlic<br/>
 5–10 cm of ginger<br/>
 Soy sauce<br/>
-Chili (to taste)<br/><br/>
+Chili (to taste)<br/>
+According to reliable sources, the optimal spiciness is achieved with 10–15g of gochugaru chili per liter.<br/><br/>
 Turmeric<br/><br/>
 ## Instructions:
 
